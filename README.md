@@ -1,1 +1,1 @@
-i am still pushing forward with determination and perseverance. my future as a software engineer is bright.
+I am still pushing forward with determination and perseverance. My future as a software engineer is bright.
